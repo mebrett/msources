@@ -1,3 +1,7 @@
+---
+title: Will of Robert Armistead, Louisa County Wills, Reels 20 and 21, Library of Virginia
+---
+
 356
 
 I Robert Armistead do make this my last will. In primus I give unto my son Robert Armistead all my land to him and his heirs forever. Item I give unto my Wife my Chariot and Chariot Horses also Jimmy to her forever. Item I give unto my Wife & Children the rest of my property to them & their heirs forever to be Equally divided among them my Will is that if the Negroes I have Already given my daughter Mary Mason be not an Equal part of my Negroes, with the rest of my Children, that She Shall Receive such a part of my Negroes, as Shall make her part Equal with the rest of my Childrens my will is that if the Negroes I have given her be an Equal part with the rest of my Children that she the sd Mary Mason receive no more of my Negroes than what I have already given her. December 19th 1790 Robert Armistead his mark _(seal)_
