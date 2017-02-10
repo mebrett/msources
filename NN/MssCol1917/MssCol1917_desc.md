@@ -12,3 +12,5 @@ Manuscripts and Archives Division, The New York Public Library. "James Maury let
 ## Notes
 
 Each letter is transcribed as an individual document. Front matter from the letterbook (label, index) is given as separate document.
+
+James Maury's pagination starts from the first letter, whereas the pagination of the digital version starts from the cover. Generally speaking, adding eight to the original page number of the letter gives you the page of the digital version.
