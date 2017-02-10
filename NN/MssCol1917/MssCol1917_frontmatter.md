@@ -29,7 +29,7 @@ Parris &c 8
 
 Heyard &c 8
 
-Mason 10, 15, 17, 46, 57
+Mason S.T. 10, 15, 17, 46, 57
 
 Wilkershiam & Anthers 12
 
