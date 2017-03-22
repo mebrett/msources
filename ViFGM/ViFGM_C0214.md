@@ -103,3 +103,11 @@ Contra
 | Mrs Edwards rent for 1816 not pd | |
 | By hire of Joe 1817 at Selma. Joe ran away in August of that year & has never been heard of since | 70.00 |
 | By hire of Jerry 1817 at Selma | 70.00 |
+
+## page 185
+
+Mrs. Mary Mason to the Estate of A. T. Mason
+
+Contra
+
+1819 July. By Wilson's wages in harvest 12 days at 9/ - 108.00
