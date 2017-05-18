@@ -1,12 +1,12 @@
 ---
-Loudon County Will Book
+Loudon County Will Book G
 ---
 
 (ed - p144)
 
 Armistead M Will
 
-I Mary Armsitead of sound mind and memory do hereby make my last Will and testament in manner and form following that is it say. I give to my daughter Mary Mason my Negro Woman Fanny commonly called Fanny Jackson to her and her heirs forever. I give ot my son Robert the following Negroes to wit Bannah, Grace, Ailel, James, John and Bedwill to him and his heirs forever. It is my Will that all the money which is or may be due for the fire of my Negroes or otherwise after paying my debts and funeral expenses shall be equally divided among my three children namely Mary Mason Robert Armistead and Elizabeth Lacy. I hope my daughters will not suppose from the distribution herein made that i have been influenced by any other motive than that of equal Justice as I do conceive the property which I have given them is in value fully equal to that which I have given their brother I do hereby constitute and appoint my son Robert sole Executor to this my last will and testament hereby revoking all other or former Wills or testaments by me heretofore made In Witness whereof I have hereunto set my hand and affixed my seal this fifth day of November in the year of our Lord eighteen hundred and three. 
+I Mary Armsitead of sound mind and memory do hereby make my last Will and testament in manner and form following that is it say. I give to my daughter Mary Mason my Negro Woman Fanny commonly called Fanny Jackson to her and her heirs forever. I give to my son Robert the following Negroes to wit Bannah, Grace, Ailel, James, John and Bedwill to him and his heirs forever. It is my Will that all the money which is or may be due for the fire of my Negroes or otherwise after paying my debts and funeral expenses shall be equally divided among my three children namely Mary Mason Robert Armistead and Elizabeth Lacy. I hope my daughters will not suppose from the distribution herein made that i have been influenced by any other motive than that of equal Justice as I do conceive the property which I have given them is in value fully equal to that which I have given their brother I do hereby constitute and appoint my son Robert sole Executor to this my last will and testament hereby revoking all other or former Wills or testaments by me heretofore made In Witness whereof I have hereunto set my hand and affixed my seal this fifth day of November in the year of our Lord eighteen hundred and three. 
 
 Mary Armisrtead (seal)
 
