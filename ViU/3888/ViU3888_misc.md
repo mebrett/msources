@@ -13,3 +13,5 @@ Imgs 22-25 . Overton Anderson (London) to JM 18 October 1797. Mentions insurance
 Img 36-37 Letter of introduction from Capper Perkins Co of Birmingham for Mr. Gros of St. Petersburg. 
 
 Img 38-39. 1797 December 30 
+
+Imgs 46- 49: William Dangerfield to James Maury, Jan 26, 1798. Boucher's book; Maury had asked for D's opinion and D is uncertain whether he was asking viz Washington or more generally. 
