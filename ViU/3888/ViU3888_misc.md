@@ -15,3 +15,5 @@ Img 36-37 Letter of introduction from Capper Perkins Co of Birmingham for Mr. Gr
 Img 38-39. 1797 December 30 
 
 Imgs 46- 49: William Dangerfield to James Maury, Jan 26, 1798. Boucher's book; Maury had asked for D's opinion and D is uncertain whether he was asking viz Washington or more generally. 
+
+Img 61 June 10, 1798. Kingsmill Davan sends via Mr. Williams two volumes of Davan's own writing. 
