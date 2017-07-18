@@ -16,4 +16,6 @@ Img 38-39. 1797 December 30
 
 Imgs 46- 49: William Dangerfield to James Maury, Jan 26, 1798. Boucher's book; Maury had asked for D's opinion and D is uncertain whether he was asking viz Washington or more generally. 
 
-Img 61 June 10, 1798. Kingsmill Davan sends via Mr. Williams two volumes of Davan's own writing. 
+Img 61 June 10, 1798. Kingsmill Davan sends via Mr. Williams two volumes of Davan's own writing.
+
+Imgs 69-71 Charles Mortimer to James, August 19. 1799. Happy to renew correspondence, wants news of family, no longer in business. "We might be a very happy people here were it not for factions spirits" 
