@@ -20,4 +20,8 @@ Img 61 June 10, 1798. Kingsmill Davan sends via Mr. Williams two volumes of Dava
 
 Imgs 69-71 Charles Mortimer to James, August 19. 1799. Happy to renew correspondence, wants news of family, no longer in business. "We might be a very happy people here were it not for factions spirits" 
 
-Imgs 80-82: Mrs Anderson to JM, Feb 7, 1800,  from London. Refers to Overton as "my unfortunate and infatuated Nephew". Congratulates Maurys on birth of William. Thanks J for news of friends in America "EL & Mrs Mason are both indebted to me in the writing way". Hopes JM has recovered from an illness. 
+Imgs 80-82: Mrs Anderson to JM, Feb 7, 1800,  from London. Refers to Overton as "my unfortunate and infatuated Nephew". Congratulates Maurys on birth of William. Thanks J for news of friends in America "EL & Mrs Mason are both indebted to me in the writing way". Hopes JM has recovered from an illness.
+
+Img 91. Chs Yates to JM, 19 May 1801. 1 page. Missed an opportunity to send JM the Baltimore papers containing news of Congress & Jefferson's election. Loss of wheat crop in Berkeley to the Hessian fly. Crops. His health. Address leaf has a list with checkmarks.
+
+Img 93-96. Boucher to JM, 1802 Feb 19.
