@@ -25,3 +25,8 @@ Imgs 80-82: Mrs Anderson to JM, Feb 7, 1800,  from London. Refers to Overton as 
 Img 91. Chs Yates to JM, 19 May 1801. 1 page. Missed an opportunity to send JM the Baltimore papers containing news of Congress & Jefferson's election. Loss of wheat crop in Berkeley to the Hessian fly. Crops. His health. Address leaf has a list with checkmarks.
 
 Img 93-96. Boucher to JM, 1802 Feb 19.
+
+## Box Unknown (3?)
+Images 105-122 . House Expenses for 1801, 1808, 1809, 1815 [Transcribe/note at some point in the future. 
+
+Img 127-144 (146?) Relating to a Mr Bernard Salenave of Baltimore (letter to his creditors, mortgage in French). Involves Mr Christopher Johnston of Baltimore. Img 137 is a deed appointing James Maury as attorney for the executors of C. Johnston (Robert Johnston and Maria S. Johnston) in matters concerning the estate of lands on St. Domingo which were property of Bernard Salenave (from St. Domingue, lived in Baltimore, died). 
