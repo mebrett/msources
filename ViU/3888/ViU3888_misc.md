@@ -30,3 +30,11 @@ Img 93-96. Boucher to JM, 1802 Feb 19.
 Images 105-122 . House Expenses for 1801, 1808, 1809, 1815 [Transcribe/note at some point in the future. 
 
 Img 127-144 (146?) Relating to a Mr Bernard Salenave of Baltimore (letter to his creditors, mortgage in French). Involves Mr Christopher Johnston of Baltimore. Img 137 is a deed appointing James Maury as attorney for the executors of C. Johnston (Robert Johnston and Maria S. Johnston) in matters concerning the estate of lands on St. Domingo which were property of Bernard Salenave (from St. Domingue, lived in Baltimore, died). 
+
+Img 158. May 4, 1804 Law Report from the King's Bench written by Albert Maury (who?). Relates to a decision about whether a foreign certificate of Bankruptcy could be a bar to demand on the Drawer.
+
+Imgs 159-163 . 1804. Business with Thomas Bigland and Fontaine.
+
+Imgs 164-165. Mcwhann price of cottong
+
+Img 166 Thomas Bigland, 
