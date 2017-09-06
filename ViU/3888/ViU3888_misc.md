@@ -38,3 +38,7 @@ Imgs 159-163 . 1804. Business with Thomas Bigland and Fontaine.
 Imgs 164-165. Mcwhann price of cottong
 
 Img 166 Thomas Bigland, 
+
+Img 181-184  Christopher Johnston March 20, 1805, Baltimore. Business - Ship Smallwood mentioned; Alexander & Twiss' accounts were refused with protest? Appended is copy of letter Jany 1805 to JM from Ben Day in Fburg. 
+
+Img 185 Thos. Bigland with letters re business. 
