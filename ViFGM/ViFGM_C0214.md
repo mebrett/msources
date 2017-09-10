@@ -25,7 +25,8 @@ Miss B. Armistead
 Robt Armistead
 
 Dr
-| 1800 |  |  |  |  |  |  
+
+| 1800 | | | | | |  
 |--|--|--|--|--|--|
 | Janry | 3 | To Cash paid by Mrs Mason| 30 | - | - | 
 | 1801 Janry | 30 | To do pr Armistead | 30 |  |  |
@@ -34,8 +35,8 @@ Dr
 | Novr | 25 | To Cast Ballo for Tobo | 4 | 9 | 3 | 
 | 1796 Septr | 3 | To Cash paid on acct | 3 |  |  |
 | Decr | 20 | To 1212 [hhd] pork @ 33/. p 100 | 19 | 18 | 9 |
-| 1797 July | 10 | To Cash paid Davys Harvest | 1 | 15 | - |
-|  | 28 | To do sent by request | 4 | 10 | - | 
+| 1797 July | 10 | To Cash paid Davys Harvest | 1 | 15 |  |
+|  | 28 | To do sent by request | 4 | 10 |  | 
 
 
 Contra Cr
@@ -85,13 +86,14 @@ Contra
 
 1817 January
 
+| | |
 |--|--|
 | By hire of Joe 1816 at Selma | $65.00 |
 | By hire of Jerry at R Plain 1816 | 65.00 |
 | By cash of Mrs Scott for hire of Scylla a few months in the year 1816 she having died early in that year | 5.78 |
 | By Cash of John Haff hire of Phyllis year 1816 | 20.00 |
 | By Cash of Joseph Beard hire of Duanna year 1816 | 25.00|
-|By hire of Phill year 1816 at Selma | 10.00 |
+| By hire of Phill year 1816 at Selma | 10.00 |
 | By hire of Beck to Stephen Balla year 1816 at | |
 | By hire of Betty & her children 1816 to | 5.00 |
 | Hester & her Children Baker & Mary hired the year 1816 for victuals & clothes the first & last to Mark Wood the 2d | | 
@@ -99,6 +101,7 @@ Contra
 
 1816 Jany
 
+| | |
 |--|--|
 | Mrs Edwards rent for 1816 not pd | |
 | By hire of Joe 1817 at Selma. Joe ran away in August of that year & has never been heard of since | 70.00 |
