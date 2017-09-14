@@ -1,5 +1,5 @@
 ---
-Matthew Maury to James Maury, 9 June 1805. Papers of James Maury, 1769-1917, Accession #3888 and #3888-a, Special Collections, University of Virginia Library, Charlottesville, Va. BoxX_187-
+Matthew Maury to James Maury, 9 June 1805. Papers of James Maury, 1769-1917, Accession #3888 and #3888-a, Special Collections, University of Virginia Library, Charlottesville, Va. BoxX_187-194
 ---
 
 June 9 1805
@@ -28,4 +28,17 @@ I yesterday dined with our old Friend J. Walker - & mentioned what you say respe
 
 I have not seen our Friend Col Morris for five or six weeks which is not often the Case for there are very few of my [early] friends & acquaintances that I value as much but I heard from him to day by Letter - He is well - & has for about twelve months last enjoyed better health than he has usually done for several years. Tho' he has been extremely distressed for about two years past first with the Death of his Lady - about 9 Months after that of his Youngest son Overton - a young Man - & about 10 months after that of his eldest son Richard, who it is said was his Favourite. This last stroke bore extremely heavy on him, os much that I really was apprehensive he would have sunk under it (for I was frequently to see him during the season of affliction) However he seems to have recovered his spirits tolerably well. He is as industrious as ever. 
 
-I was at our Brother Abrams about a week ago - He & family were well - I was then informed of a Match being likely to be made up between his Eldest Daughter, Nancy & a son of Mr Fry, a Widower with two Children - which has since taken Place. Your friend Mr Fry (the old Gentleman) enquired very particularly after you - he has been for about a year in bad Health, & app
+I was at our Brother Abrams about a week ago - He & family were well - I was then informed of a Match being likely to be made up between his Eldest Daughter, Nancy & a son of Mr Fry, a Widower with two Children - which has since taken Place. Your friend Mr Fry (the old Gentleman) enquired very particularly after you - he has been for about a year in bad Health, & I apprehend is very near the End of his Journey thro Life. I suspect he will leave few, if any better men behind him. 
+
+I very often hear of & from Fontaine, & have reason to believe he has it in his Power to do very well, & hope he makes proper use of the Means in his Power - His eldest son Richard is with me - He is a Boy of fine Disposition & Talents - he draws the Attention of almost every Body that sees him. 
+
+The last Winter was very severe in this Country - The most so of any we have had since that of 79, 80 - some say it was severer; but such have bad Memories - It was supposed, as is usual after very snowy Winters, that we should have a great Crop of Wheat this Harvest, but it will be otherwise. The Quantity will be much below the Medium Crop. tho the Quality promises to be very good. The Price is likely to be very high, at least the early Market - I know one Man who has sold his Crop (at least all he can get out by the first of August) at two Dollars from his Barn - From the present state of Affairs in Europe I suppose it probable it will continue high - How wonderful is it, that the long Experienced of the dreadful Evils & Calamities of War have not been able to deter Mankind from wantonly engaging in it!
+
+Let me hear from you as often as convenient - I think I shall be more attentive in writing for the Future - All here are well, & desire to be named to you, My sisters & Nephews with
+
+your affectionate Brother
+
+Matthew Maury
+
+[Envelope leaf]
+
