@@ -39,6 +39,3 @@ Let me hear from you as often as convenient - I think I shall be more attentive 
 your affectionate Brother
 
 Matthew Maury
-
-[Envelope leaf]
-
