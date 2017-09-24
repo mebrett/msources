@@ -42,3 +42,17 @@ Img 166 Thomas Bigland,
 Img 181-184  Christopher Johnston March 20, 1805, Baltimore. Business - Ship Smallwood mentioned; Alexander & Twiss' accounts were refused with protest? Appended is copy of letter Jany 1805 to JM from Ben Day in Fburg. 
 
 Img 185 Thos. Bigland with letters re business. 
+
+Img 201. Thos Bigland, written from Liverpool, encloses letter from Mr Lampse? in New Orleans, and Maury's son Rutson is feeling better. 
+
+Img 202-204 Paul Lanusse to JM, 30 July 1806, regarding business and prices in New Orleans. 
+
+Img 205-206 Thos Bigland (Liverpool) to JM (Buxton), 24 Spet 1806, regarding the ship Georgia
+
+Img 207-208 Thos Bigland (lpool) to JM (Buxton), 25 Sept 1806. Capt Giles had to pay £300 for ship to be brought to port, Mr Massie's cotton shipped, "Mr Williams finding peace a little more distant has withdrawn his order for the purchase" 
+
+Img 210-212 Thos Bigland to JM (in Buxton) 27 Sept 1806. vessels are heading for Buenos Ayres, The Ship Georgia may got here as well (currently in the Old Dock); further business. Written on the paper of a circular from Ewart, Rutson & Co regarding the prices of goods. 
+
+Img 213 Thos Bigland to JM (Buxton), 30 Sept 1806. The ship Connecticut has arrived from Charleston with cotton, carrying a letter from Msrs McWhann & Nephew regarding cotton prices. Encloses a copy of Hampton to JM. Ship Georgia is still being repaired.
+
+
