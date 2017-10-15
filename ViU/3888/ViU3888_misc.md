@@ -56,3 +56,4 @@ Img 210-212 Thos Bigland to JM (in Buxton) 27 Sept 1806. vessels are heading for
 Img 213 Thos Bigland to JM (Buxton), 30 Sept 1806. The ship Connecticut has arrived from Charleston with cotton, carrying a letter from Msrs McWhann & Nephew regarding cotton prices. Encloses a copy of Hampton to JM. Ship Georgia is still being repaired.
 
 
+Img 217 thos bigland
