@@ -21,34 +21,34 @@ Feb 2 1796
 
 Slaves allotted Mr Jas Maury Jany 6, 1796
 
-Letitia L60
-Willson her child 25 
-[bracket for two above with: "Genl Mason for L80"]
-Mack - 60
-Jack - 20 
-[bracket for two above with: "Genl Mason"]
-Brown - 100 Mr F.M.
-China - 62 Do
-Nelson - 25 Do
-Aggy - 18 Do
-Eliza -5 Do
-[following four bracketed with "Miss Armistead wants these, I have not seen them"]
-Gilley - 35
-Honeyman - 32
-Zelpha - 24
-Vina - 15
-[Following four bracketed with "Mrs A wants these they are down"]
-Corinna - 55
-Dina - 28
-Winney - 27
-Carter - 25
-Caswell - 100 Mr FM
-Ned - 60 Do
-L 776
+Letitia L60  
+Willson her child 25   
+[bracket for two above with: "Genl Mason for L80"]  
+Mack - 60  
+Jack - 20   
+[bracket for two above with: "Genl Mason"]  
+Brown - 100 Mr F.M.  
+China - 62 Do  
+Nelson - 25 Do  
+Aggy - 18 Do  
+Eliza -5 Do  
+[following four bracketed with "Miss Armistead wants these, I have not seen them"]  
+Gilley - 35  
+Honeyman - 32  
+Zelpha - 24  
+Vina - 15  
+[Following four bracketed with "Mrs A wants these they are down"]  
+Corinna - 55  
+Dina - 28  
+Winney - 27  
+Carter - 25  
+Caswell - 100 Mr FM  
+Ned - 60 Do  
+L 776  
 
-Lost in the sale of Letitia - L5
-pd Mr Mason - 17.8.0
-Mr Rob Armistead Do - 16
-Miss B Armistead Do 15.8.0
+Lost in the sale of Letitia - £5  
+pd Mr Mason - 17.8.0  
+Mr Rob Armistead Do - 16  
+Miss B Armistead Do 15.8.0  
 
 Those sums were pd in order to make the proportions equal - expense I do not know the amount
