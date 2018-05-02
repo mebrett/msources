@@ -2,7 +2,7 @@
 James Maury to James S. Maury, 31 March 1813. Maury Family Papers, Special Collections Research Center, Swem Library, College of William and Mary. Box 1b folder 38
 ---
 
-Liveprool 31 Mar 1813
+Liverpool 31 Mar 1813
 
 My dear James
 
