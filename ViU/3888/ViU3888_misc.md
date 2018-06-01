@@ -55,5 +55,18 @@ Img 210-212 Thos Bigland to JM (in Buxton) 27 Sept 1806. vessels are heading for
 
 Img 213 Thos Bigland to JM (Buxton), 30 Sept 1806. The ship Connecticut has arrived from Charleston with cotton, carrying a letter from Msrs McWhann & Nephew regarding cotton prices. Encloses a copy of Hampton to JM. Ship Georgia is still being repaired.
 
+Img 224-226 1804 May 19. A circular from Ewart, Rutson, & Co  regarding prices for sugars, cotton, and logwood, among others. Written inside is a note from Thomas Bigland to James Maury with business updates.  (really blurry)
 
-Img 217 thos bigland
+Img 227 1807 October 3. Business circular from Ewart, Rutson & Co regarding prices of goods, with a table below the text. 
+
+Img 228. 1809 October 17. Scrap of paper with a table of Prices Current at Liverpool 17th October 1809. On reverse, sums.
+
+Img 229. "The average prices of navigable canal property, dock stock, fire-office shares, &c in May, 1811 (to the 25th) at the office of Mr. Scott, 28, New Bridge Street, London." There are tick marks beside a number of the items on the list, including the Trent and Mersey (Grand trunk) Canal. 
+
+Img 232. Liverpool corn exchange prices current, 18th September 1832. 
+
+Img 233-236. 1810 June 15. Price circular Ewart Rutson & Co. With a note, of the same (?) date from Bigland to Maury. 
+
+Img 237-238. Burn's Commercial Glance for the year 1836. Maurey [sic] Latham and Co, Messers is listed among the subscribers. 
+
+
